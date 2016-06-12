@@ -4,7 +4,9 @@
 
 Sup I'm (((Relle))) 
 chaotic neutral, they/them pronouns 
+
 I'm a 19 yr old art student learning ruby, html, css, java, and js 
+
 I really have no clue what I'm doing with coding or like, with my life
 
 Talk to me about:
