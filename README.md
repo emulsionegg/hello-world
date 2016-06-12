@@ -12,7 +12,7 @@ I really have no clue what I'm doing with coding or like, with my life
 Talk to me about:
   Skylar (@projectbot13),
   Edo period Japanese wood block printing,
-  Disability/ chronic illness activism.
+  Disability/ chronic illness activism,
   the Spy Kids franchise
   
   hit me up on behance for commissions @ https://www.behance.net/rbesalel
